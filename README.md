@@ -1,2 +1,4 @@
-# CraxRat-7.8
-Best RAT for All versions Android
+# Anonymous
+All Type RATs Available
+https://t.me/hacks_users
+Paid tools avilable
